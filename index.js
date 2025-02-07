@@ -12,11 +12,11 @@
 ─██░░░░░░░░░░██──██░░░░░░██──██░░░░░░░░░░██──██░░░░░░░░░░██──██░░██──██████████░░██──────██░░██──────██░░░░░░░░░░██──██░░░░░░░░░░██────████░░████────██░░░░░░░░░░██──██░░██──██░░░░░░██─ 
 ─██████████████──██████████──██████████████──██████████████──██████──────────██████──────██████──────██████████████──██████████████──────██████──────██████████████──██████──██████████─ 
 ──────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────────── 
-created by Silent_lover432 🕵
-contact me 923096287432 ♻️
+created by MR SAHAS MD 🕵
+contact me 94768788312 ♻️
 © Copy coder alert ⚠
 
-THIS PROJECT CREATED BY SILENTLOVER USING WHATSAPP BAILEY GITHUB INC 2025 POLICY © RESPECT OWNER SILENTLOVER === PROJECT === SILENT-SOBX-MD BE ALERT ⚠️ COPY CODER THIS SCRIPT ONLY FOR SILENT-SOBX-MD TEAM 
+THIS PROJECT CREATED BY MR SAHAS USING WHATSAPP BAILEY GITHUB INC 2025 POLICY © RESPECT OWNER MR SAHAS === PROJECT === JOKER-MD BE ALERT ⚠️ COPY CODER THIS SCRIPT ONLY FOR SILENT-SOBX-MD TEAM 
 */
 
 
